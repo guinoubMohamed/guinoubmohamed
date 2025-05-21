@@ -43,7 +43,7 @@
 ## 📫 Let's Connect
 
 - 📧 Email: mohamedguinoubi8@gmail.com  
-- 💼 [LinkedIn](www.linkedin.com/in/mohamed-guinoubi-61a941360) 
+- 💼 [LinkedIn](https://www.linkedin.com/in/mohamed-guinoubi-61a941360)
 ---
 
-_“The best way to predict the future is to build it.” – Abraham Lincoln_
+
